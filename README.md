@@ -32,4 +32,4 @@
 <h2>Conclusion : Téléchargez Maintenant les Astuces pour Age of Origins</h2>
 <p>Ne perdez plus de temps ! Obtenez dès maintenant votre générateur de ressources illimitées pour Age of Origins et devenez le joueur le plus puissant du serveur. Or infini gratuit, ressources illimitées et codes débloqués : tout à portée de clic. Qu'attendez-vous ? Téléchargez maintenant et commencez à dominer Age of Origins comme jamais auparavant !</p>
 
-## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES AGE OF ORIGINS](https://tinyurl.com/anto025fr) 🫵🫵
+## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES AGE OF ORIGINS](https://shr.pn/Anto025) 🫵🫵
